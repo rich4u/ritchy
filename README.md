@@ -1,0 +1,2 @@
+# ritchy
+WAYU TRIDOUNGNGERN
